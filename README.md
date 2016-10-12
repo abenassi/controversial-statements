@@ -9,8 +9,8 @@ Cambia las afirmaciones siguientes según lo que vos pienses es lo correcto!
 
 # Afirmaciones
 
-* "Hay que agarrar más la pala!": Trabajar es levantarse con la primera luz del sol y acostarse unas horas después de la última.
-* "No se come donde se caga": No hay que buscar relaciones con jefes o compañeros de trabajo.
-* "Los inmigrantes nos roban el trabajo": Hay que construir un muro gigante en (_fill in the blanks_) para que no entre cualquier (_fill in the blanks_).
-* "Estudia el pasado si quieres predecir el futuro.": Contiene toda la información necesaria para saber lo que vendrá después.
-* "El sexo sin amor es una experiencia vacía. Pero como experiencia vacía es una de las mejores."
+* "Hay que agarrar más la pala!": Trabajar es levantarse con la primera luz del sol y acostarse unas horas después de la última. Excelente frase!!!
+* "No se come donde se caga": No hay que buscar relaciones con jefes o compañeros de trabajo. Y bueno...
+* "Los inmigrantes nos roban el trabajo": Hay que construir un muro gigante en la Gral. Paz para que no entre cualquier #$$%$%"!".
+* "Estudia el pasado si quieres predecir el futuro." (hasta ahí la frase está OK)
+* 
