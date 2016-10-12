@@ -28,5 +28,9 @@ Cambia las afirmaciones siguientes según lo que vos pienses es lo correcto!
 
 *COMIENZO del espacio vacío*
 
+
+PASEAR. COMER. GIMNASIO. AMIGOS. etc
+
+
 *FIN del espacio vacío*
 
