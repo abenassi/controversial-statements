@@ -28,5 +28,7 @@ Cambia las afirmaciones siguientes según lo que vos pienses es lo correcto!
 
 *COMIENZO del espacio vacío*
 
+¿Qué es lo que más te gusta hacer cuando no estás trabajando?
+
 *FIN del espacio vacío*
 
